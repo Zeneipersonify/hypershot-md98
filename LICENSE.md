@@ -1,4 +1,4 @@
-#  
+#  hypershot best Scripts offers the most advanced hypershot Script, with teleport and auto-farm. Perfect for dominating any match.
 
 
 
